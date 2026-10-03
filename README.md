@@ -1,16 +1,18 @@
-## Hi there 👋
+<img width="735" height="773" alt="213705" src="https://github.com/user-attachments/assets/55880cf9-3797-4adc-93d8-9ed23e8c9671" />
 
-<!--
-**eternwal/Eternwal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+# <p align="center">  me n who ₊ ⊹
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+----------
+
+<p align="center"> bodily 17
+<p align="center"> autistic + traumagenic sys
+<p align="center"> we age regress + pet regress if you got a prpblem with dat block us 
+<p align="center"> c+h unless stated orherwose on name
+<p align="center"> general DID, do not treat us like one person
+
+----------
+
+# <p align="center"> blinkies :3
+
+<p align="center"> <a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/blinkiesCafe-iA.gif' alt='blinkies.cafe | make your own blinkies!'></a> <a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/0031-dogpaw.gif' alt='blinkies.cafe | make your own blinkies!'></a><a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/0031-dogpaw.gif' alt='blinkies.cafe | make your own blinkies!'></a><a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/0023-trans-pride.gif' alt='blinkies.cafe | make your own blinkies!'></a><a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/0074-pan.gif' alt='blinkies.cafe | make your own blinkies!'></a><a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/0113-autism.gif' alt='blinkies.cafe | make your own blinkies!'></a>
