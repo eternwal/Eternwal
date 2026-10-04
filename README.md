@@ -18,10 +18,3 @@
 <p align="center"> <a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/blinkiesCafe-iA.gif' alt='blinkies.cafe | make your own blinkies!'></a> <a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/0031-dogpaw.gif' alt='blinkies.cafe | make your own blinkies!'></a><a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/0031-dogpaw.gif' alt='blinkies.cafe | make your own blinkies!'></a><a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/0023-trans-pride.gif' alt='blinkies.cafe | make your own blinkies!'></a><a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/0074-pan.gif' alt='blinkies.cafe | make your own blinkies!'></a><a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/0113-autism.gif' alt='blinkies.cafe | make your own blinkies!'></a>
 
 --------
-
-# <p align="center"> ships i likw
-
-- BerryVision
-- Sproutcest
-- Pebble x Sprout
-- Dyle x Gourdy
