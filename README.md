@@ -11,6 +11,8 @@
 
 ♡ <p align="center"> <img src="https://64.media.tumblr.com/702614e076c7a38ae14f7ece395b9dcc/f840d39dbe1812a8-41/s100x200/364ff6dcae78ce3a300b38f5e8b68dd171a7f1ab.gifv" width="20" heighr="20"> bodily ${\textsf{\color{#FF0000} 7𝙩𝙚𝙚𝙣 }}$ !! 
 
+<p align="center"> 100+ alters , pls be cautious ^_^ this gh is for us collectvly so any alter cud be using it 
+
 
 ----------
 
