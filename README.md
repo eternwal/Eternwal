@@ -24,3 +24,26 @@
 # sign mi stra :3 
 
 <p align="center"> <a href='https://eternallyred.straw.page' target='_blank'><img src='https://github.com/user-attachments/assets/8deccd79-5795-47ca-8bd8-8dc60a1d1794' alt='blinkies.cafe | make your own blinkies!'></a>
+
+</details>
+   <details>
+        <summary> <td>$${\color{#FFFFFF}\verb| fandoms we are in / have alters from (updated)  ♡|}$$</td></summary>
+
+
+Dandys world
+Regretavator
+Yandere sim
+SL / sister loc
+FNAF
+OMORI - barely any alters
+bfdi
+II - inaminate insanity, rare
+DDLC - DokiDokiLiteratureClub, rare
+Sallyface
+Nso - needystreameroverload
+Stranger Things - rare
+TAWOG / TWWWOG - MANY AAYYAYAA
+Undertale - no comment
+Gravity Falls - rare
+MY LITTLE PONY! - MANY MANY FICTS AND I LOVE THEM ALLL AAAAA
+NEWST ONE AAHH ARG/MINECRAFT MYTHS LALALAL - THIS HAPPEBD BC THE HOST WAS FIXATED ON IT ^^
