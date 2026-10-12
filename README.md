@@ -30,20 +30,20 @@
         <summary> <td>$${\color{#FFFFFF}\verb| fandoms we are in / have alters from (updated)  ♡|}$$</td></summary>
 
 
-Dandys world
-Regretavator
-Yandere sim
-SL / sister loc
-FNAF
-OMORI - barely any alters
-bfdi
-II - inaminate insanity, rare
-DDLC - DokiDokiLiteratureClub, rare
-Sallyface
-Nso - needystreameroverload
-Stranger Things - rare
-TAWOG / TWWWOG - MANY AAYYAYAA
-Undertale - no comment
-Gravity Falls - rare
-MY LITTLE PONY! - MANY MANY FICTS AND I LOVE THEM ALLL AAAAA
-NEWST ONE AAHH ARG/MINECRAFT MYTHS LALALAL - THIS HAPPEBD BC THE HOST WAS FIXATED ON IT ^^
+1. Dandys world
+2. Regretavator
+3. Yandere sim
+4. SL / sister loc
+5. FNAF
+6. OMORI - barely any alters
+7. bfdi
+8. II - inaminate insanity, rare
+9. DDLC - DokiDokiLiteratureClub, rare
+10. Sallyface
+11. Nso - needystreameroverload
+12. Stranger Things - rare
+13. TAWOG / TWWWOG - MANY AAYYAYAA
+14. Undertale - no comment
+15. Gravity Falls - rare
+16. MY LITTLE PONY! - MANY MANY FICTS AND I LOVE THEM ALLL AAAAA
+17. NEWST ONE AAHH ARG/MINECRAFT MYTHS LALALAL - THIS HAPPEBD BC THE HOST WAS FIXATED ON IT ^^
