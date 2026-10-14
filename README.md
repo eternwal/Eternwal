@@ -25,6 +25,18 @@
 
 <p align="center"> <a href='https://eternallyred.straw.page' target='_blank'><img src='https://github.com/user-attachments/assets/8deccd79-5795-47ca-8bd8-8dc60a1d1794' alt='blinkies.cafe | make your own blinkies!'></a>
 
+
+</details>
+   <details>
+        <summary> <td>$${\color{#FFFFFF}\verb| 
+NOTE !!  BYI !! |}$$</td></summary>
+
+- not all of us are profic & darkship. some of us do it to cope with certain stuff, mostly our -holders do this type of stuff but SOME so PLS ask and do not assume !!
+
+- sometimes we sit by the tree for fun, the alter may not be profic/dark so ASK!! KEYWORD:ASK
+
+- yes they are also sh0tac0n & l0l1 which is 😭💢 . >>SOME SOME SOMEEE SOME SOME<<  SOMESOMSKDGWKSHKSS
+
 </details>
    <details>
         <summary> <td>$${\color{#FFFFFF}\verb| fandoms we are in / have alters from (updated)  ♡|}$$</td></summary>
