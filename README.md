@@ -1,4 +1,4 @@
-<img width="735" height="773" alt="213705" src="https://s6.ezgif.com/tmp/ezgif-6acf766c86850466.gif" />
+<img width="735" height="773" alt="213705" src="https://media1.tenor.com/m/x18vDVAOC94AAAAd/rickorty-rick-x-morty.gif" />
 
 
 # <p align="center"> ₊ ⊹
